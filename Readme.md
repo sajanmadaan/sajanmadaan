@@ -10,7 +10,7 @@
 
 <h3>Like to</h3>
 
-<p>🏸- Play Badminton; 🚴🏾- Cycling<p>
+<p>🏸- Play Badminton; 🚴🏾- Cycling 🎭�<p>
 
 <p>⚡ Fun fact 👉🏾 Jolly person always hungry for good food and good code.<p>
 
