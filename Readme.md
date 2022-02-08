@@ -11,7 +11,7 @@
 
 <h3>Like to</h3>
 
-<p>🏸- Play Badminton<p>
+<p>🏸- Play Badminton; 🎭 - Graphics Designing<p>
 
 <p>⚡ Fun fact 👉🏾 Jolly person always hungry for good food and good code.<p>
 
