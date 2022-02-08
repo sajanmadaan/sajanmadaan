@@ -13,7 +13,7 @@
 
 <p>🏸- Play Badminton; 🎭 - Graphics Designing<p>
 
-<p>⚡ Fun fact 👉🏾 Jolly person always hungry for good food and good code.<p>
+<p>⚡ Fun fact 👉🏾 World is Ending soon, So better commit your code before you....<p>
 
 
 <br/>
